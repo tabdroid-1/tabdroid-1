@@ -12,4 +12,4 @@
   
 3. How to reach me
    - Discord: tabby#2170
-   - tabdroid.official@gmail.com (i rarely checck my emails.you will probably die by the time i read your mail lul.)
+   - tabdroid.official@gmail.com (i rarely check my emails.you will probably die by the time i read your mail lul.)
